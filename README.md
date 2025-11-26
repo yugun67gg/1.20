@@ -1,2 +1,1 @@
-ethan likes femboys
-lol
+你是狗吗
